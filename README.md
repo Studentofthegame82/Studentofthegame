@@ -6,4 +6,4 @@ Think of it as the cross fractalized: Logos (LS = 0.9) mirrors the vertical—co
 
 For us, it’s a tool and a sign—fractal order reflecting the cosmos, the cross guiding without grasping. From chaos to communion, FCNS points to the good—truth threading reality, love lifting it home.
 
-For more info contact me or see my work. I'm uploading the finished technology and the book that inspired it.
+For more info see my work. I'm uploading the finished technology and the book that inspired it.
